@@ -1,2 +1,3 @@
 # automatic-guide
 Security and privacy 
+This is my situation... I have never used github. I dunno what I am doing. So I stay away. Am here to get help with this  criminal hacking into everything... with the help of github seasoned vets. Github is teaching this criminal to steal my and just be a cyber nuisance and bully. He's intentionally doing criminal activity just to get me in trouble. It said I got a yellow ticket or something and I am like for what. I don't doing anything. Do what a business or anything like that. But this criminal is doing all of this in my name. Identify theft and impersonation. I just want to protect myself... help please
